@@ -1,0 +1,1 @@
+Go to http://notthatplatypus.me/ to see the personal website.
